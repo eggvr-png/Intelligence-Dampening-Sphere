@@ -2,7 +2,7 @@
 I AM NOT A MORON!
 YES YOU ARE. YOUR THE MORON THEY BUILT TO MAKE ME AN IDIOT!
 ## How to install
-Just like any other mod, download the .dll, and put it in the plugins folder!
+Just like any other mod, download the .dll, and put it in the plugins folder! Boot up ya game, and get wheatlyed
 ## What does the WHEATLY do?
 In forest, Wheatly is there. crazy. He ALSO plays Wheatly Science on loop.
 ## Disclamer
