@@ -1,3 +1,4 @@
+## I only made this as a joke. Don't use this. Please. Also I'm not gonna work on it anymore
 # Intelligence-Dampening-Sphere
 I AM NOT A MORON!
 YES YOU ARE. YOUR THE MORON THEY BUILT TO MAKE ME AN IDIOT!
